@@ -1,6 +1,6 @@
 # Welcome to [Raja Venkateswarlu]'s GitHub Profile! 👋
 
-![Profile Banner]![download](https://github.com/Rajavenkateswara/Rajavenkateswara/assets/115797671/74b3f045-bb32-4992-8ed4-aaf606156043)
+[download](https://github.com/Rajavenkateswara/Rajavenkateswara/assets/115797671/74b3f045-bb32-4992-8ed4-aaf606156043)
 
 
 ## About Me
